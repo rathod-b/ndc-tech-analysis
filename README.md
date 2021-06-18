@@ -1,0 +1,2 @@
+# ndc tech analysis
+ 
